@@ -1,4 +1,4 @@
-# Куку, меня зовут Whyhere.
+# меня зовут Whyhere.
 
 ### :smiling_imp: Обо мне:
 
